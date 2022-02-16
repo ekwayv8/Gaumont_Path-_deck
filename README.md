@@ -1,2 +1,2 @@
-# Gaumont_Path-_deck
+# Gaumont_Pathe_deck
 This will change the Cinema industry for ever :)
